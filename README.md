@@ -1,3 +1,3 @@
-# first-repo
+My first repository 
 This is my first repository 
-hello
+If I can have one super power it would be the ability to read minds. In my personal preference, I think that the ability to read minds is one the greatest superpowers of all time because it can lead to better communication, improved teamwork, and many social benefits. The power to read minds does not only improve communication between people but it can also be helpful to figure what people are really thinking and whether someone is lying, which in turn could be very beneficial not only in understanding the person but also in making decisions.  
